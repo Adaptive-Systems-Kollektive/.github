@@ -28,7 +28,7 @@ Small pieces, loosely joined. Open by default. Human centered. Ecology aware.
 
 ## Pillars we serve 🏛️
 
-Science, Education, Commerce, Art and Media, Governance, Data and Intelligence, Ecology.
+Science, Education (Wisdom🦉), Commerce, Art and Media, Governance, Data and Intelligence, ***Ecology.***
 
 ## Core values 🧬
 
